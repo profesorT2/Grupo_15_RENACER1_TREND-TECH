@@ -1,0 +1,1 @@
+# Grupo_15_RENACER1_TREND-TECH
